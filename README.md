@@ -1,0 +1,5 @@
+- Hi Hi, I'm @cryptox55ru
+- 👀 I am interested in cryptocurrency
+- 🌱 I am currently learning how to create projects, talk about interesting projects
+- 💞️ I am looking for opportunities to collaborate with projects to highlight their activities
+- 📫 How to contact me cryptox55ru@gmail.com
